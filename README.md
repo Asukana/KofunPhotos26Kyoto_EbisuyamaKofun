@@ -1,0 +1,2 @@
+# KofunPhotos26Kyoto_EbisuyamaKofun
+蛭子山古墳
